@@ -7,7 +7,7 @@ However, it doesn't have to be this exact one! There are lots of good option to 
 I didn't find any good options on Amazon. What I am looking for is:
 
 - Something leather, or faux leather, or a nice fabric would be fine. Something that looks and feels nice and will hold up. 
-- Something low-profile. I would really prefer no zippers (makes the writing experience terrible!), not toom many pockets or folders. This is for holding paper and writing in (I saw one with a calculator built in which is ridiculous for several reasons)
+- Something low-profile. I would really prefer no zippers (makes the writing experience terrible!), not too many pockets or folders. This is for holding paper and writing in (I saw one with a calculator built in which is ridiculous for several reasons)
 - Someting bigish A5 or A4 should do the trick
 
 Ring number shouldn't matter, I think three or six are both fine. 
