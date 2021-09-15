@@ -12,7 +12,7 @@ I didn't find any good options on Amazon. What I am looking for is:
 
 Ring number shouldn't matter, I think three or six are both fine. 
 
-Many of these binders come with the option to customize them. I think customization is a cool option, but totally not mandatory!
+Many of these binders come with the option to customize them. I think customization is a cool option, but if it's not customized that is totally fine too!
 That being said, if you do get one that can be customized any combination of:
 - Paul Storm
 - Paul WW Storm
