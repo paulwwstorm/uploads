@@ -17,7 +17,7 @@ That being said, if you do get one that can be customized any combination of:
 - Paul Storm
 - Paul WW Storm
 - 沐子风
-- My [signature](https://github.com/paulwstorm/uploads/blob/main/Signature%20(transparent%20background).png)
+- My [signature](https://github.com/paulwwstorm/uploads/blob/main/Signature%20(transparent%20background).png)
 
 I talked to the guy who runs the shop for the binder I linked and even those it says "only text" he said it was fine to send over a logo, so I think that .png should work.
 
