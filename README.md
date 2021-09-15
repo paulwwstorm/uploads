@@ -1,8 +1,8 @@
 I can't believe I had to create a whole project to describe this gift idea *sigh*
 
-I really want a leather ringed binder. Something like this: https://www.etsy.com/listing/792240786/3-ring-binder-portfolioleather-binder?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=a4+leather+binder&ref=sc_gallery-1-1&plkey=cbef9f9af67d23734d3d8de36a8d554a4b553a69%3A792240786&pro=1&frs=1&col=1.
+I really want a leather ringed binder. Something like [this] (https://www.etsy.com/listing/792240786/3-ring-binder-portfolioleather-binder?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=a4+leather+binder&ref=sc_gallery-1-1&plkey=cbef9f9af67d23734d3d8de36a8d554a4b553a69%3A792240786&pro=1&frs=1&col=1).
 
-It doesn't have to be this exact one! There are lots of good option to be found here: https://www.etsy.com/market/a4_leather_binder?min=0&max=50.
+It doesn't have to be this exact one! There are lots of good option to be found [here] (https://www.etsy.com/market/a4_leather_binder?min=0&max=50).
 
 I didn't find any good options on Amazon. What I am looking for is:
 
@@ -17,7 +17,7 @@ That being said, if you do get one that can be customized any combination of:
 - Paul Storm
 - Paul WW Storm
 - 沐子风
-- My signature: https://github.com/paulwstorm/uploads/blob/main/Signature%20(transparent%20background).png
+- My [signature] (https://github.com/paulwstorm/uploads/blob/main/Signature%20(transparent%20background).png)
 
 I talked to the guy who runs the shop for the binder I linked and even those it says "only text" he said it was fine to send over a logo, so I think that .png should work.
 
