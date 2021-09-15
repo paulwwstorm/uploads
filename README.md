@@ -22,7 +22,6 @@ That being said, if you do get one that can be customized any combination of:
 I talked to the guy who runs the shop for the binder I linked and even those it says "only text" he said it was fine to send over a logo, so I think that .png should work.
 
 Anyway, I am sorry for being sooooo prescriptive. I just really like these notebooks and have a lot of thoughts. I don't care too much about the color, there are lots of different designs, whether you get it customized or not, what size you choose, these are all things which don't matter too much to me.
-And if you want to get some paper to fill any type of graph paper to match the size and ring number of the binder would be fine. You could also get some dividers to go with it, or find some fancy paper. IDK. 
 
 More ideas:
 https://www.etsy.com/listing/1014484612/vintage-vegan-leather-binder-rings-cover?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=a4+cloth+binder&ref=sr_gallery-1-18&organic_search_click=1&frs=1
