@@ -19,6 +19,6 @@ That being said, if you do get one that can be customized any combination of:
 - 沐子风
 - My [signature](https://github.com/paulwwstorm/uploads/blob/main/Signature%20(transparent%20background).png)
 
-I talked to the guy who runs the shop for the binder I linked and even those it says "only text" he said it was fine to send over a logo, so I think that .png should work.
+I talked to the guy who runs the shop for the binder I linked and even though it says "only text" he said it was fine to send over a logo, so I think that .png should work.
 
 Anyway, I am sorry for being sooooo prescriptive. I just really like these notebooks and have a lot of thoughts. I don't care too much about the color, there are lots of different designs, whether you get it customized or not, what size you choose, these are all things which don't matter too much to me.
